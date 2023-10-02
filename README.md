@@ -31,4 +31,4 @@ Directions
 4. Maak het gehakt op smaak met
 5. peper, zout, djahé, paprikapoeder, ketjap e...
 
-https://bing.com/th?id=OSK.7fabf69923854f133398cbaf8bcd7c47
+![](https://bing.com/th?id=OSK.7fabf69923854f133398cbaf8bcd7c47)
